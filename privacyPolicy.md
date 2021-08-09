@@ -1,4 +1,4 @@
-                                                                              Privacy policy
+                                                               Privacy policy
                                                                              
 Abdelaaziz Idoumohmed built the PhotoRemember app as a Commercial app. This SERVICE is provided by Abdelaaziz Idoumohmed and is intended for use as is.
 
