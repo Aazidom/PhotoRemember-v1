@@ -53,3 +53,4 @@ This policy is effective as of 2021-08-09
 Contact Us
 
 If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at abdelaaziz.idoumohmed.appdev@gmail.com.
+Auto-entrepreneur N° SIRET 851 536 763 00010 (France)
